@@ -1,4 +1,4 @@
-# Christopher Moroney
+<div align="center"># Christopher Moroney</div>
 
 Seattle, WA - 425-445-1021 
 christopher.moroney1@gmail.com
